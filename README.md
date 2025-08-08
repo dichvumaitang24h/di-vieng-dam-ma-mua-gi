@@ -7,7 +7,7 @@
 # 1\. Lễ viếng – Ý nghĩa và sự cần thiết
 
 # Trong văn hóa Việt Nam, việc đến viếng đám ma không chỉ là thể hiện lòng thương tiếc với người đã khuất mà còn là lời động viên, an ủi gia đình. Tùy theo mức độ thân thiết và điều kiện cá nhân, người đi viếng có thể mang theo một số lễ vật hoặc phúng điếu bằng tiền mặt. Tuy nhiên, lễ viếng cần đúng mực, không phô trương hay quá màu mè, tránh gây phản cảm trong bối cảnh trang nghiêm của tang lễ.
-
+Xem thêm: https://maitanggiangtho.vn/di-vieng-dam-ma-mua-gi/
 # 
 
 # 2\. Những lễ vật thường được mua khi đi viếng đám ma
